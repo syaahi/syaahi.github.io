@@ -1,1 +1,0 @@
-# syaahi.github.io
